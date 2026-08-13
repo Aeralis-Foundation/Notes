@@ -1,1 +1,2 @@
-So ya are one of those people that manually downloaded the mod? Well I do that too sometimes.
+Hewwo!!! =w=
+If ya have any issues, then report them. 
