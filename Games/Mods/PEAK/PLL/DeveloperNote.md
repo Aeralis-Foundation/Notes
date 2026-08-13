@@ -1,1 +1,1 @@
-Maybe someone is reading this? Well, if you are then update is coming soon, I somehow managed to break campfires. UwU
+So ya are one of those people that manually downloaded the mod? Well I do that too sometimes.
