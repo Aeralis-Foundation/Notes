@@ -1,2 +1,1 @@
-Did the update come out on time?
-Well, I do not know, because I wrote this quite a while ago.
+Next update in another 2 weeks? Well, I doubt that, because the next update is just adding missing features and simplifying the creator for custom biomes. UwU
