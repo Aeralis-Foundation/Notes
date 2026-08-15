@@ -1,1 +1,3 @@
-Ya should try: [ValensHats by valenous](https://thunderstore.io/c/peak/p/valenous/ValensHats/). =w=
+Ya should try: ValensHats by valenous. =w=
+
+Cannot use stinky markdown to make it a link. :c
