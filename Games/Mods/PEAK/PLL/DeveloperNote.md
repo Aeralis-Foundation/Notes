@@ -1,3 +1,1 @@
-Ya should try: ValensHats by valenous. =w=
-
-Cannot use stinky markdown to make it a link. :c
+Do ya love furries? Well, then ya should try: ValensHats by valenous. =w=
