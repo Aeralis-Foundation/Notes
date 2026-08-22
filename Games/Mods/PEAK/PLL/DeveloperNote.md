@@ -1,1 +1,2 @@
-Do ya love furries? Well, then ya should try: ValensHats by valenous. =w=
+PLL update is live!
+Additionally, did you check out: ValensHats by valenous? UwU 
