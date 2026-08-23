@@ -1,2 +1,2 @@
-PLL update is live!
-Additionally, did you check out: ValensHats by valenous? UwU 
+New update will be big!
+By the way, check out: ValensHats by valenous! UwU
