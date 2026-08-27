@@ -1,2 +1,2 @@
-I do not know, maybe 48 hours?
+Update is LIVE!
 By the way, check out: ValensHats by valenous! UwU
