@@ -1,2 +1,2 @@
-Update soon? Well, tomorrow, but still.
-By the way, check out: ValensHats by valenous! UwU
+PLL v5.8.1!!! Officially released!
+Check out: ValensHats by valenous! UwU
