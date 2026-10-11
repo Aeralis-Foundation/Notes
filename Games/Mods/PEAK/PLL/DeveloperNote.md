@@ -1,2 +1,2 @@
-PLL v5.8.1!!! Officially released!
+Multiplayer patches and various performance improvements in v5.9.4.
 Check out: ValensHats by valenous! UwU
